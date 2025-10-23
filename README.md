@@ -4,7 +4,7 @@
 可以关注关一下我们哟
 
 **TT技术小记**
-![img.png](picture/img.png)
+![img.png](picture/qrcode_for_gh_646bd5758f26_344.jpg)
 
 测试面经小集合
 
